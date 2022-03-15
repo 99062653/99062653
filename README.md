@@ -1,2 +1,2 @@
 
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![RICK](https://github.com/99062653/99062653/blob/main/text.gif)
